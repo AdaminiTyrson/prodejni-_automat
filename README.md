@@ -1,0 +1,1 @@
+# prodejni-_automat
